@@ -11,4 +11,4 @@
 * [cooked dog](https://tenor.com/zh-TW/view/cooked-dog-meme-gif-9569834080841533192)
 
 ### 我的圖片
-![我的家教資訊 幫忙按個讚 感恩](https://www.facebook.com/share/p/19USDB6bV1/)
+[我的家教資訊 幫忙按個讚 感恩](https://www.facebook.com/share/p/1DE9tGHhiL/)
